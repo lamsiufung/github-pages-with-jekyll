@@ -1,3 +1,0 @@
-spalpslaplspal
-spalspla
-[pslaplsa
